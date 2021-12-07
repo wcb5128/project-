@@ -6,3 +6,4 @@ Hey now
 whats up
 Its almost my birthday
 Wanna be done with this semester
+added this on git hub
