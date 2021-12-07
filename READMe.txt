@@ -5,3 +5,4 @@ I want money
 Hey now
 whats up
 Its almost my birthday
+Wanna be done with this semester
